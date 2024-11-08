@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Lawpotiguar
+- 👋 Hi, I’m Law
 - 👀 I’m interested in games music and films
 - 🌱 I'm currently learning network and programming
 - 💞️ I’m looking to collaborate on network
